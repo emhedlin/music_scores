@@ -6,3 +6,4 @@
 
 ## Schumann
 [Humoresque in B-Flat Major, op. 20 I. Einfach](https://www.musicaneo.com/sheetmusic/sm-4046_humoresque_in_b_flat_major_op_20.html)
+[Symphonic Etudes, op. 13: Theme Andante](https://musescore.com/logically/symphonic-etudes-op-13-thema-robert-schumann)
